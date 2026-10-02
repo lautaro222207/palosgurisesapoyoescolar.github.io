@@ -1,1 +1,1 @@
-# palosgurisesapoyoescolar.github.io
+# PaLosGurisesApoyoEscolar.github.io
